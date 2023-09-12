@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @LuckySocrates
 - 👀 so into nft
-- 🌱 I’m have a great idea...
+- 🌱 I have a great idea...
 - 💞️ I’m looking to collaborate on all the process that be necessary to get done.
 - 📫 How to reach me luckysjlonft@gmail.com
 
